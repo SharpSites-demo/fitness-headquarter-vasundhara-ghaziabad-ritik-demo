@@ -1,0 +1,2 @@
+# fitness-headquarter-vasundhara-ghaziabad-ritik-demo
+Independent SharpSites design preview for Fitness Headquarter Vasundhara. Nina-standard content, controlled motion, accessible enquiry draft; no outreach.
